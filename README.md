@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Maryfly
 - 👀 I’m interested in learning more about programming
-- 🌱 I’m currently learning nothing
+- 🌱 I’m currently tyring to learn more about coding!
 - 💞️ I’m looking to collaborate on life, its too difficult sometimes, especially with covid!
 - 📫 How to reach me - sorry not available 
 
